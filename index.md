@@ -12,3 +12,5 @@
 - モデルもしてます
 
 [Instagram]（https://www.instagram.com/kuyasawa/）
+
+[リンクです](https://nnn.ed.nico)
