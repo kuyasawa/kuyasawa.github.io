@@ -11,6 +11,4 @@
 - プログラミング見習い
 - モデルもしてます
 
-[Instagram]（https://www.instagram.com/kuyasawa/）
-
-[リンクです](https://nnn.ed.nico)
+[Instagram](https://www.instagram.com/kuyasawa/)
