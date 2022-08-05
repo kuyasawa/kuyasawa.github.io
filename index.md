@@ -10,4 +10,5 @@
 - 兵庫県神戸市
 - プログラミング見習い
 - モデルもしてます
-[Instagram]（https://www.instagram.com/kuyasawa/）
+
+[Instagram] （https://www.instagram.com/kuyasawa/）
