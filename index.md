@@ -11,4 +11,4 @@
 - プログラミング見習い
 - モデルもしてます
 
-[Instagram] （https://www.instagram.com/kuyasawa/）
+[Instagram]（https://www.instagram.com/kuyasawa/）
